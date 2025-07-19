@@ -1,1 +1,0 @@
-# WM-811k_Wafermap_Practice
